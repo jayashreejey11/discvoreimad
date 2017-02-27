@@ -1,3 +1,3 @@
 # discvoreimad
 hi
-this is jayashree,sensitive quiet but talkative girl
+this is jayashree,studying imad is interesting
